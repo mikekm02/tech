@@ -1,7 +1,7 @@
 &ensp;&ensp;<img src="https://iili.io/BItNiaj.jpg" alt="beauty"><br>
 &ensp;&ensp;<a href="mailto:mikeoparaugo@yahoo.com">Send E-mail</a><br>
 &ensp;<img src="https://iili.io/BImtQTl.md.jpg" alt="beauty"><br>
-<img src="https://iili.io/BImtQTl.md.jpg" width="200" height="200" title="White flower" alt="Flower"><br>
+<img src="https://iili.io/BImtQTl.md.jpg" width="200" height="200" title="White flower" alt="Flower"><br><a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
 <form action="https://www.rapidtables.com/web/html/link/html-link-new-window.html">
     <input type="submit" value="This is a button link"><br>
   &ensp; &ensp;<img src="https://iili.io/qqfVMgt.jpg" alt="beauty"><br>
