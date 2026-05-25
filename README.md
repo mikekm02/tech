@@ -1,4 +1,4 @@
-<img src="https://iili.io/CJrquzg.md.gif" alt="CJrquzg.md.gif">
+
 &ensp;&ensp;<img src="https://iili.io/BItNiaj.jpg" alt="beauty"><br>
 &ensp;&ensp;<a href="mailto:mikeoparaugo@yahoo.com">Send E-mail</a><br>
 &ensp;<img src="https://iili.io/BImtQTl.md.jpg" alt="beauty"><br>
@@ -10,6 +10,7 @@
    &ensp;&ensp;<img src="https://iili.io/CJwhxi7.jpg" alt="beauty"><br><a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
    <img src="https://iili.io/qqfhSrN.jpg" alt="beauty"><br><a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
    &ensp;&ensp;<img src="https://iili.io/qqfwoKl.jpg" alt="beauty"><br><a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
+    <img src="https://iili.io/CJrquzg.md.gif" alt="CJrquzg.md.gif">
 &ensp;&ensp;<a href="09025086481">09025086481</a><br>
 &ensp;&ensp;<a href="https://web.facebook.com/profile.php?id=61587221618964">Facebook</a><br>
 
